@@ -1,0 +1,5 @@
+- 👋 Hola, Soy Deivy Alejandro Rojas Linares (en github soy @Linaressss073) Soy estudiante de la Universidad Central.
+- 👀 Estoy interesado en la Inteligencia artificial, el desarrollo de aplicaciones y en la ciberseguridad.
+- 🌱 Actualmente estudio Ingenieria de sistemas en la Universidad Central.
+- 💞️ Actualmente busco trabajo en cualquier cosa que vea razonable dependiendo de mi rango de experiencia como Junior.
+- 📫 En instagram soy @_largavidaalguaro_ .
